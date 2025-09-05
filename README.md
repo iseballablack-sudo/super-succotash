@@ -1,2 +1,0 @@
-# super-succotash
-yapilacaklar-live
